@@ -1,7 +1,7 @@
 [![](https://visitcount.itsvg.in/api?id=devabrahmasta&icon=0&color=0)](https://visitcount.itsvg.in)
 
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🌱 I’m currently learning
 
 
 ## 🌐 Socials:
